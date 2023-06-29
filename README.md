@@ -1,0 +1,1 @@
+I am Monixquello and currently at Ground Breaker Talents, I'm eager to learn about Tech.
